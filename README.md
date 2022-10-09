@@ -1,0 +1,1 @@
+# Early_Detection_of_Forest_Fires
